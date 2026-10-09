@@ -1,3 +1,6 @@
+---
+title: "Event Horizon — Privacy Policy"
+---
 Event Horizon — Privacy Policy
 Policy version: 1.1    Effective date: 2026-10-07
 
